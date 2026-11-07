@@ -14,7 +14,7 @@ He needs to release someone but on a leash. The Chief is taken aback as he reali
 
 Chapter 1:
 
-There is a TV running in a living room and at the corner of the room on the floor Anamika is sitting plopped against a wall. Her posture shows signs of intense depression and deep sorrow. Her phone is ringing and TV is running but everything seems like a blur to her. She is barely noticing anything and ignores the phone first two times it rings.
+There is a TV running in a living room and at the corner of the room on the floor Anamika is sitting plopped against a wall. Her posture shows signs of intense depression and deep sorrow. Her phone is ringing and TV is running but everything seems like a blur to her. She is barely noticing anything and ignores the phone first two times it rings. She eventually picks up the phone and places it to her ear without saying anything. A female voice on the other side answers and tells her that she needs to move on and not drown herself with her grief. Anamika asks her what does she want. Callee tells her to come down and she will help her relax.
 
 Key Pointers for horror:
 
