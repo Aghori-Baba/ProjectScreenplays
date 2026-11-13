@@ -1,5 +1,8 @@
 Project Unknown Signal
 
+Opening Idea
+- A man named Chief is visited by a person called Watchman. Chief says a Watchman visiting him means something is serious. Watchman says that they have detected an unnaturally strong Muon burst originating somewhere in Varanasi. Chief says that few days back they detected unnatural Muon burst here in Pune as well. Could those two be related? To which Watchman suddenly hushes the Chief up says that he can feel that there is someone listening to them, someone who doesn't belong in this world. Somewhere very close. It is like he can see them through the wall behind him. The Chief looks behind him at the wall and says that it is their interrogation room and they have kept a mysterious man detained there who was trying to enter their premises this morning. The Watchman demands to see this person.
+
 High Concept: An unknown agent known as the Chief is visited by a mysterious visitor who defies the laws of Physics and a girl is being haunted by a strange entity who seems to keep getting closer while hearing strange messages from people she can't seem to see with her eyes.
 
 Opening:
@@ -21,3 +24,4 @@ Key Pointers for horror:
 - Strange messages in form of Tap
 - Strange messages in form of flashing lights
 - Ghost coming in and out to provide some context
+
